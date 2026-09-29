@@ -1,0 +1,2 @@
+# premium-cornice-run-001-cornice-profile-running-templa
+Stop guessing which cornice profile works for your next race—your training data is scattered across sticky notes, spreadsheets, and forgotten apps. The Cornice Profile Running Template Hub consolidates every variable into one Notion command center, so you can finally see the exact pattern that turns icy ridges into personal records.  This template
